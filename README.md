@@ -44,5 +44,5 @@ Alanya'da yaşıyorum. Ekonometri kökenli analitik bakış açımı modern yaz�
 ### 🌐 İletişim & Bağlantılar
 
 - 💼 **LinkedIn:** [Profilime Git](https://linkedin.com/in/shmserdar)
-- 🌐 **Web:** [oan.events](https://oan.events)
-- ✉️ **İletişim:** iletisim@oan.events
+- 🌐 **Web:** [Yakında...](https://serdarhanmerdan.com)
+- 📸 **Instagram:** [@serdarhanmerdan](https://instagram.com/serdarhanmerdan)
